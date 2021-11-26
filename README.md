@@ -3,7 +3,7 @@
 - 💼 Hoje trabalho com Liderança em Suporte a Produtos Saas e Gestão de Pessoas.
 - 👩🏽‍🎓 Estudante de Tecnologia, Programação Swift e Análise Comportamental.
 - 🎓 Formada em : Gestão de TI e pós graduação em : Gestão e Governança em Tecnologia da Informação.
-- 🎫 Certificações: Scrum Foundation.
+- 🎫 Certificações: Scrum Foundation Professional | Kanban Essentials Professional.
 - 📊📈 Excel, Dashboards e Power BI.
 - 💁🏽‍♀️ Pronomes: Ela/Dela
 
